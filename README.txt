@@ -1,0 +1,3 @@
+For a quite long time, now we may not have much improvement in Artificial Intelligence capabilities.
+If so, than the one who can better estimate the "average" '"thoughts"' will be in an advantage, because that's what the neural networks try to learn. So the ones who can guess it the best will be the most able to leverage AI.
+And if so, if this measure is so well calibrated, that this system will yeald to the perfect biological perfect replicator? Because now our evolution has a bias towards knowing very well what is the general thinking. So will we grow to have more empathy? or where does that even lead to?
