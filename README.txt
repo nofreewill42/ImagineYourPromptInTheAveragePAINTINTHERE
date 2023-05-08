@@ -4,3 +4,6 @@ And if so, if this measure is so well calibrated, that it will reach and top at 
 
 Or does that even happen now??
 Because with whom we live the most well possible we adapt to them to turn them into the direction of their thoughts space... stear them .... in the direction we have in the capability of how we can understand the other. what?
+So what's a mind trap?
+
+movies try to arrive at the average 
